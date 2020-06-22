@@ -11,3 +11,5 @@ Herr der Ringe dreht sich vor allem um Frodo, der den einen Ring zu zerstören h
 * Hat sich überwunden und die Hübscheste im Auenland erobert
 * Hat 13 Kinder
 * Wurde Bürgermeister vom Auenland
+
+<img src="https://s3.xopic.de/openhpi-public/courses/7cZWaATaTjbQ4phWCr6tg3/rtfiles/4q6wOLeLWYMu5syPwPlVPR/85002346_267b8e5c6c_o.jpg"/>
